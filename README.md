@@ -84,7 +84,7 @@ I’m open to opportunities in:
 - Graduate trainee roles in automation or data science
 
 📩 **Email:** Odubiyiazeez@gmail.com 
-🔗 **LinkedIn:** LinkedIn.com/in/azeez-odubiyi 
+🔗 **LinkedIn:** www.LinkedIn.com/in/azeez-odubiyi 
 🌍 Based in Nigeria | Available for remote, hybrid, or on-site roles
 
 ---
