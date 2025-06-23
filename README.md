@@ -83,8 +83,8 @@ I’m open to opportunities in:
 - Manufacturing tech
 - Graduate trainee roles in automation or data science
 
-📩 **Email:** azeez@example.com  
-🔗 **LinkedIn:** [Your LinkedIn URL]  
+📩 **Email:** Odubiyiazeez@gmail.com 
+🔗 **LinkedIn:** LinkedIn.com/in/azeez-odubiyi 
 🌍 Based in Nigeria | Available for remote, hybrid, or on-site roles
 
 ---
